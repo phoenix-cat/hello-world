@@ -9,3 +9,7 @@ Welcome  to discuss with me.
 Probably I know nothing at all, but I'm willing to learn.
 
 Hope I'm happy with github int the next freshman year.
+
+do do do
+
+do do do again
